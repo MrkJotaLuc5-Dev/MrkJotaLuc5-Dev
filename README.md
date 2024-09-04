@@ -12,4 +12,4 @@ Meu nome é João Lucas
 
 @TechnoWolff
 
-![JackBlackSALUTE](https://tenor.com/pt-BR/view/school-of-rock-jack-black-dewey-finn-salute-gif-4762745)
+![](https://tenor.com/pt-BR/view/school-of-rock-jack-black-dewey-finn-salute-gif-4762745)
